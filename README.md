@@ -10,7 +10,6 @@ Without ongoing, careful management, diabetes can lead to a buildup of sugars in
 
 Different kinds of diabetes can occur, and managing the condition depends on the type. Not all forms of diabetes stem from a person being overweight or leading an inactive lifestyle. In fact, some are present from childhood.
 
-drawing
 
 Challenge
 
